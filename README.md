@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently working on Blockchain
+I am currently working on Blockchain.
 
 
 ## 🌐 Socials:
